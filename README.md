@@ -1,2 +1,2 @@
 # wp
-wallpapers | arts
+wallpapers | arts | SFW
